@@ -5,7 +5,7 @@
 <img src="https://komarev.com/ghpvc/?username=owmmike&label=ㅤlittleㅤfreaksㅤ&color=fea89a">
 </p>
 <p align="center">
-$\textit{{\color{#fb7c70} vincent　𝐨𝐫　clinic　　he　/　it　　✦　　GMT+2    ݁ ˖Ი𐑼⋆}}$ 
+$\textit{{\color{#fb7c70} vincent　𝐨𝐫　clinic　　he　/　it　　　　GMT+2    ݁}}$ 
   <p align="center">
 $\textit{{\color{#fdc8b6} 18+　intj　4w5　458　　eng　/　nl　taken by the loml}}$
     <p align="center">
