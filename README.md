@@ -9,7 +9,7 @@ $\textit{{\color{#fb7c70} vincent　𝐨𝐫　clinic　　he　/　it　　�
   <p align="center">
 $\textit{{\color{#fdc8b6} 18+　intj　4w5　458　　eng　/　nl　taken by the loml}}$
   </br>
-        <a href="https://flauma.atabook.org"> atabook</a>ㅤ<a href="https://en.pronouns.page/@dottolohen"> en.prns </a>ㅤ<a href="https://laternavigilis.straw.page/"> straw </a>
+        <a href="https://syndrome.atabook.org/"> atabook</a>ㅤ<a href="https://en.pronouns.page/@dottolohen"> en.prns </a>ㅤ<a href="https://laternavigilis.straw.page/"> straw </a>
                    </p>
                     <p align="center">
 <img width="950" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/16/dlo.gif">
